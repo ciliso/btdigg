@@ -1,7 +1,8 @@
 <h2>BTDigg官方网站 - 免费磁力搜索工具最新网址|发布页</h2>
 <p>BTDigg是一个基于BitTorrent协议的分布式搜索引擎，专注于提供磁力链接和种子文件的搜索服务。它通过分析DHT网络，实时索引活跃的种子文件，并支持全文搜索功能，使用户能够快速找到所需的资源。BTDigg的特点在于其去中心化的架构，利用P2P技术提高搜索效率和稳定性，同时不存储任何实际内容，仅收集种子元数据，因此具有较高的合法性和安全性。</p>
 <p><strong>一键访问：</strong><a href="https://www.ggonav.com/sites/5994.html" target="_blank"><strong>BTDigg最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://cilisousuodaohang.litxdh.com"><strong>磁力导航大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <ol>
